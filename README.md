@@ -1,2 +1,1 @@
-# track-my-gf
-I'll update when done.
+Imagine receiving payment promnpts but for WEB3.
